@@ -12,6 +12,8 @@ Right now, you can use this exclusive coupon code to get maximum savings:
 - **Discount:** 20% OFF
 - **Best For:** Content creators, YouTubers, bloggers, agencies
 
+👉 **[Claim Pictory Coupon Now](https://shorturl.at/w1Ung)**
+
 This code applies directly to your subscription and instantly reduces your total cost at checkout. It’s one of the most reliable and commonly used promo codes available for Pictory AI.
 
 ## Upto 60% Discount on Pictory AI
